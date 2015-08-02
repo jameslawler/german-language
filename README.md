@@ -1,1 +1,7 @@
-# german-language
+# German Language
+
+## Grammatik
+
+## Wortschatz
+
+## Artikel
