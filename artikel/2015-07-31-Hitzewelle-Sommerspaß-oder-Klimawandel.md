@@ -30,5 +30,5 @@ Erdlingen, sich mehr um unsere Erde kümmeren müssen. Wenn auch das
 Klimawandel nicht existiert, machen wir trotzdem gut für die Umwelt und
 unsere Zukunft.
 
-Mit fruendlichen Grüßen,
+Mit freundlichen Grüßen,
 Herr Lawler
