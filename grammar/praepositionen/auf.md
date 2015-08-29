@@ -22,6 +22,8 @@ I keep an eye on the structure.
 
 Ich freue mich auf meinen langen Aufenthalt.
 
+I look forward to my long stay.
+
 ## warten
 
 Ich warte auf den Aufzug.
