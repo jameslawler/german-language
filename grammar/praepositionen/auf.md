@@ -18,6 +18,10 @@ Ich passe auf den Aufbau auf.
 
 I keep an eye on the structure.
 
+## sich freuen
+
+Ich freue mich auf meinen langen Aufenthalt.
+
 ## warten
 
 Ich warte auf den Aufzug.
