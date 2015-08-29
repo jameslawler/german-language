@@ -16,6 +16,8 @@ I answer the exercise.
 
 Ich passe auf den Aufbau auf.
 
+I keep an eye on the structure.
+
 ## warten
 
 Ich warte auf den Aufzug.
