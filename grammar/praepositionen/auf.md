@@ -11,3 +11,9 @@ I pay attention to the contract.
 Ich antworte auf die Aufgaben.
 
 I answer the exercise.
+
+## warten
+
+Ich warte auf den Aufzug.
+
+I wait for the lift.
