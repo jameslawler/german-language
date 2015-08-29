@@ -12,6 +12,10 @@ Ich antworte auf die Aufgaben.
 
 I answer the exercise.
 
+## aufpassen
+
+Ich passe auf den Aufbau auf.
+
 ## warten
 
 Ich warte auf den Aufzug.
