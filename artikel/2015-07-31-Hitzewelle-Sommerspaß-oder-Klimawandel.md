@@ -3,32 +3,31 @@
 http://www.dw.com/de/hitzewelle-sommerspa%C3%9F-oder-klimawandel/a-18616694
 
 der Artikel "Hitzewelle: Sommerspaß oder Klimawandel?" spricht ein
-interessantes und wichtiges Thema an, weil wir diesen Sommer so viel 
-Hitzwelle in Deutschland gehabt haben.
+interessantes und wichtiges Thema an, weil wir in diesen Sommer eine so große 
+Hitzwelle in Deutschland hatten.
 
-Der Artikel geht um Klimawandel und die Möglichkeit, ob es existiert. In 
-2015 gab es rekorde Temperaturen und häufiger Hitzwelle in Deutschland. 
-Im Juli 2015 gab es einen neuen Hitzrekord in Bayern mit 40,3 Grad Celsius 
-gemessen. Obwohl das heiße Wetter schön für Deutschen ist, finden die 
-meisten, dass ihre Wohnungen nicht für das heiße Wetter gut gebaut sind.
+In dem Artikel geht es um Klimawandel und dessen mögliche Existenz. In 
+2015 gab es Rekord-Temperaturen und eine außergewöhnlich Hitzwelle in Deutschland. 
+Im Juli 2015 gab es einen neuen Hitzrekord in Bayern mit 40,3 Grad Celsius. 
+Obwohl das heiße Wetter schön für die Deutschen ist, finden die 
+meisten, dass ihre Wohnungen nicht für das heiße Wetter gut geeignet sind.
 
-Einerseits freuen die meisten Deutschen auf das heiße Wetter, andereseits 
-haben manche Deutschen Angst vor dem Klimawandel, denn sie glauben, dass 
-Menschen den Planeten erwärmen. Eine Expertin, die Dim Coumou heißt, 
-vom Potsdam-Institut für Klimafolgenforschung ist sicher, dass die Hitze 
-mit dem Klimawandel zu tun hat, weil Deutschland normalerweise nicht so 
-häufiger Hitzwelle hat.
+Einerseits freuen sich die meisten Deutschen auf das heiße Wetter, andereseits 
+haben einige Deutschen Angst vor dem Klimawandel, denn sie glauben, es sei 
+der Mensch, der den Planeten schade. Die Expertin Dim Coumou vom Potsdam-Institut 
+für Klimafolgenforschung ist sicher, dass die Hitze mit dem Klimawandel zu tun hat, 
+weil Deutschland normalerweise nicht von extremen Hitzwellen betroffen ist.
 
 Andere Menschen wie Florian Imbery sagen, dass Klimawandel keine 
 Rolle für diese Hitzwelle spielt. Er arbeitet beim Deutschen Wetterdienst 
-und er glaubt, dass wir nicht so schnell die Schuld an Hitzwelle auf 
-Klimawandel schieben. Er denkt, dass wir viel mehr Datei sammeln müssen 
+und glaubt, dass wir nicht so schnell die Schuld an der Hitzwelle auf 
+den Klimawandel schieben sollten. Er denkt, dass wir viel mehr Daten sammeln müssen 
 und dann können wir uns so etwas langfristig ansehen.
 
-Ich bin der Meinung, dass Klimawandel stimmt existiert und wir, als
-Erdlingen, sich mehr um unsere Erde kümmeren müssen. Wenn auch das
-Klimawandel nicht existiert, machen wir trotzdem gut für die Umwelt und
-unsere Zukunft.
+Ich bin der Meinung, der Klimawandel existiert. Wir als Bewohner müssen uns
+mehr um unseren Planeten Erde kümmern. Selbst wenn der Klimawandel nicht 
+existieren würde, wir hätten damit trotzdem etwas Gutes für die Umwelt 
+und unsere Zukunft getan.
 
 Mit freundlichen Grüßen,
 Herr Lawler
